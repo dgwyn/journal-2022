@@ -8,3 +8,36 @@ what I do everyday, but now in 2022 and further!
 ## July 21, 2022
   For lunch we decided to make spagetti. Unfortunately, yesterday my family bought our ingredients very late at around 7. The butchers were gone so we couldn't get the regular sausage meat, only the pre-packaged ground stuff. When we started cooking the ground beef, it wasn't like sausage at all. It was very oily. Oil poured out of the meat, and we had enough to cook all the other vegetables. At least we save oil? Ground meat is brittle too, turning into small bits as I cooked it. All the oil and small bits overpowered everything else, so we added another can of tomato sauce, and it was fine. My mom came up with the idea to add parmesan cheese into the mix. At first I doubted it. But I noticed that the cheese would melt and turn stringy. That was a good choice! One of my friends invited me to go camping with them next week.I asked what the plan was, but they said they just started planning, and they wanted permission from my dad. My dad accepted, I'm excited for when it happens! Though they still need to come up with the time, date, what we need and how we'll meet.
 
+## July 22, 2022
+My dad wants to make Oden. 
+Oden is a japanese broth/stew with many ingredients. 
+I've been tasked with finding things that we should put into it.
+Looking at recipes and pictures, there's
+- Boiled eggs
+- Daikon
+- Fishballs
+- Fishcakes
+- Chikuwa(fried fish paste cooked on skewer)
+  Chikuwa has another version called Yaki-Chikuwa.
+  It's thicker and longer than normal, specifically used for simmering.
+- Hanpen(ground fish, yam, eggs)
+- Ball(fried ground fish w/ veggies)
+- Mochi Kinchaku(filled fried tofu "pouches")
+- Kombu (can be used to flavor or eat)
+- Karashi (japanese mustard)
+Some things i'd like to add myself
+- Chicken
+- Potato
+- Shrimp
+- Tofu
+- Chicken hearts(dad and sister want it)
+- Carrot
+- Mushroom
+- Scallop
+- Zucchini
+Notes I found
+- Leaving Oden to sit is good, allows ingredients to absorb
+- Oden is traditionally simmered for an hour before eating. But screw that!
+- Pre-packed oden kits can also be bought. Better used for one person
+
+I think this'll be enough. I'll add more tomorrow if whe I come up with more ideas. Could this be possibly... Bussin?
